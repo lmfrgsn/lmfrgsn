@@ -1,1 +1,1 @@
-### UI Developer based in Belfast ⚡
+### Product Designer & Developer based in Belfast ⚡
